@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...sd
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...mgf
-- 😄 Pronouns: ...23
+- 😄 Pronouns: ...236355
 - 45456
 - ⚡ Fun fact: ...
 
