@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @fertyjik
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...sd
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...4545
 - 📫 How to reach me ...mgf
 - 😄 Pronouns: ...236355
 - 45456
