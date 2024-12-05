@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fertyjik
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...sd
+- 🌱 I’m currently learning ...sd959
 - 💞️ I’m looking to collaborate on ...4545c
 - 😄 Pronouns: ...2363554545
 - 45456
