@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...4545c
 - 😄 Pronouns: ...2363554545454
 - 45456sdf
-- ⚡ Fun fact: ...sd
+- ⚡ Fun fact: ...sd96
  nlasdfsd4
 <!---hfd543545
 fertyjik/fertyjik is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.gfm
