@@ -7,6 +7,6 @@
 - ⚡ Fun fact: ...sd96456454355trr
  nlasdfsd45203
 <!---hfd5435456262966022002
-fertyjik/fertyjik is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.gfm
+fertyjik/fertyjik is a ✨ special ✨ repository because its `README.md` (weerthis file) appears on your GitHub profile.gfm
 You can click the Preview link to take a look at your changes.523526
 --->
