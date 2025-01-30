@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fertyjikао
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...sfd
 - 🌱 I’m currently learning ...sd959
 - 💞️ I’m looking to collaborate on ...4545c
 - 😄 Pronouns: ...2363554545454xvcv
