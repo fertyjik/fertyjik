@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...sfd
 - 🌱 I’m currently learning ...sd959
 - 💞️ I’m looking to collaborate on ...4545c
-- 😄 Pronouns: ...2363554545454xvcv
+- 😄 Pronouns: ...2363554545454xvcvbd
 - 45456sdf5696
 - ⚡ Fun fact: ...sd96456454355trr
  nlasdfsd45203
