@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @fertyjikао
+rgt- 👋 Hi, I’m @fertyjikао
 - 👀 I’m interested in ...sfd
 - 🌱 I’m currently learning ...sd959dsf
 - 💞️ I’m looking to collaborate on ...4545c
 - 😄 Pronouns: ...2363554545454xvcvbd
 - 45456sdf5696
-- ⚡ Fun fact: ...sd96456454355trr
+- ⚡ Fun fact: ...sd96456454355trrgtr
  nlasdfsd45203
 <!---hfd5435456262966022002
 fertyjik/fertyjik is a ✨ special ✨ repository because its `README.md` (weerthis fidfble) appears on your GitHub pgererofile.gfm
