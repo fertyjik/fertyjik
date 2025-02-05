@@ -1,7 +1,7 @@
-rgt- 👋 Hi, I’m @fertyjikао
+fdfdvfrgt- 👋 Hi, I’m @fertyjikао
 - 👀 I’m interested in ...sfd
 - 🌱 I’m currently learning ...sd959dsf
-- 💞️ I’m looking to collaborate on ...4545c
+- 💞️ I’m looking to collaborate on ...4545cdfg
 - 😄 Pronouns: ...2363554545454xvcvbd
 - 45456sdf5696
 - ⚡ Fun fact: ...sd96456454355trrgtr
