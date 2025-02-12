@@ -4,7 +4,7 @@ fdfdvfrgt- 👋 Hi, I’m @fertyjikао
 - 💞️ I’m looking to collaborate on ...4545cdfg
 - 😄 Pronouns: ...2363554545454xvcvbd
 - 45456sdf5696
-- ⚡ Fun fact: ...sd96456454355trrgtr
+- ⚡ Fun fact: ...sd96456454355trrgtrкер
  nlasdfsd45203vfsd656
 <!---hfd5435456262966022002
 fertyjik/fertyjik is a ✨ special ✨ repository because its `README.md` (weerthis fidfble) appears on your GitHub pgererofisdfsdsle.gfm
