@@ -2,7 +2,7 @@ gfhgnhghgfdfdvfrgt- 👋 Hi, I’m @fertyjikао
 - 👀 I’m interested in ...sffdsf
 - 🌱 I’m currently learning ...sd959dsf
 - 💞️ I’m looking to collaborate on ...4545cdfggrb
-- 😄 Pronouns: ...2363554545454xvcvbd5925412261562
+- 😄 Pronouns: ...2363554545454xvcvbd5925412261562ff
 - 45456sdf5696
 - ⚡ Fun fact: ...sd96456454355trrgtrкерdf
  nlasdfsd45203vfsd656
