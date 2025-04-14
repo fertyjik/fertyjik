@@ -1,4 +1,4 @@
-fhgfhgnhghgfdfdvfrgt- 👋 Hi, I’m @fertyjikао
+eqwsffhgfhgnhghgfdfdvfrgt- 👋 Hi, I’m @fertyjikао
 - 👀 I’m interested in ...sffdsfнfgdbgdf
 - 🌱 I’m currently learning ...sd959dsfgersrsrsr
 - 💞️ I’m looking to collaborate on ...4545cdfggrbhghngfhhryrh622
