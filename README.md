@@ -1,7 +1,7 @@
 leqwsffhgfhgnhghgfdfdvfrgt- 👋 Hi, I’m @fertyjikао
 - 👀 I’m interested in ...sffdsfнfgdbgdf
 - 🌱 I’m currently learning ...sd959dsfgersrsrsrdvccbv
-- 💞️ I’m looking to collaborate on ...4545cdfggrbhghngfhhryrh622xcvxctrtgtcvvcbvbvnvbvv9559885vxccccx
+- 💞️ I’m looking to collaborate on ...4545cdfggrbhghngfhhryrh622xcvxctrtgtcvvcbvbvnvbvv9559885vxccccxkyykjhhj
 - 😄 Pronouns: ...2363554545454xvcvbd5925412261562ff852526nhhnhbdf452thhtrdcscxwefewfbfdfvdfdjk,jj
 - vbvbbvvblililoililgrefdsddsghnbujyhg
 - 45456sdf569ccvnvcvbcczcxcxzerergertreeujyjyu
