@@ -5,7 +5,7 @@ leqwsffhgfhgnhghgfdfdvfrgt- 👋 Hi, I’m @fertyjikао
 - 😄 Pronouns: ...2363554545454xvcvbd5925412261562ff852526nhhnhbdf452thhtrdcscxwefewfbfdfvdfdjk,jjytrnhrttr
 - vbvbbvvblililoililgrefdsddsghnbujyhg
 - 45456sdf569ccvnvcvbcczcxcxzerergertreeujyjyu
-- ⚡ Fun fact: ...sd96456454355trrgtrкерdfgeregrreewfenhgg
+- ⚡ Fun fact: ...sd96456454355trrgtrкерdfgeregrreewfenhgghfhhgf
  nlasdfsd45203vfsd656asdsrtulikjlkj
 <!---hfd5435456262966022002regfddfdfdgrgrexfffsdfdshgf
 fertyjik/fertyjik is a ✨ special ✨ repository because its `README.md` (weerthis fidfble) appears on your GitHub pgererofis96dfsdsle.gfm
