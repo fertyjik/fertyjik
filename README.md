@@ -3,9 +3,9 @@ leqwsffhgfhgnhghgfdfdvfrgt- 👋 Hi, I’m @fertyjikаоfdg
 - 🌱 I’m currently learning ...sd959dsfgersrsrsrdvccbvfgdgfd
 - 💞️ I’m looking to collaborate on ...4545cdfggrbhghngfhhryrh622xcvxctrtgtcvvcbvbvnvbvv9559885vxccccxkyykjhhj
 - 😄 Pronouns: ...2363554545454xvcvbd5925412261562ff852526nhhnhbdf452thhtrdcscxwefewfbfdfvdfdjk,jjytrnhrttr26663622
-- vbvbbvvblililoililgrefdsddsghnbujyhg
-- 45456sdf569ccvnvcvbcczcxcxzerergertreeujyjyufw
-- ⚡ Fun fact: ...sd96456454355trrgtrкерdfgeregrreewfenhgghfhhgfetrtehtfhgfhf
+- vbvbbvvblililoililgrefdsddsghnbujyhgbdfdfbfb
+- 45456sdf569ccvnvcvbcczcxcxzerergertreeujyjyufwdfbdbf
+- ⚡ Fun fact: ...sd96456454355trrgtrкерdfgeregrreewfenhgghfhhgfetrtehtfhgfhfdbbfddfb
  nlasdfsd45203vfsd656asdsrtulikjlkjfewwe
 <!---hfd5435456262966022002regfddfdfdgrgrexfffsdfdshgf
 fertyjik/fertyjik is a ✨ special ✨ repository because its `README.md` (weerthis fidfble) appears on your GitHub pgererofis96dfsdsle.gfm
