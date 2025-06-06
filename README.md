@@ -1,8 +1,8 @@
 leqwsffhgfhgnhghgfdfdvfrgt- 👋 Hi, I’m @fertyjikаоfdg
-- 👀 I’m interested in ...sffdsfнfgdbgdfyukuk
+- 👀 I’m interested in ...sffdsfнfgdbgdfyukuk654
 - 🌱 I’m currently learning ...sd959dsfgersrsrsrdvccbvfgdgfdyu
-- 💞️ I’m looking to collaborate on ...4545cdfggrbhghngfhhryrh622xcvxctrtgtcvvcbvbvnvbvv9559885vxccccxkyykjhhj
-- 😄 Pronouns: ...2363554545454xvcvbd5925412261562ff852526nhhnhbdf452thhtrdcscxwefewfbfdfvdfdjk,jjytrnhrttr26663622gfghjytr8765447854
+- 💞️ I’m looking to collaborate on 54...4545cdfggrbhghngfhhryrh622xcvxctrtgtcvvcbvbvnvbvv9559885vxccccxkyykjhhj65
+- 😄 Pronouns: 555464655465654654546465...2363554545454xvcvbd5925412261562ff852526nhhnhbdf452thhtrdcscxwefewfbfdfvdfdjk,jjytrnhrttr26663622gfghjytr8765447854
 - vbvbbvvblililoililgrefdsddsghnbujyhgbdfdfbfb
 - 45456sdf569ccvnvcvbcczcxcxzerergertreeujyjyufwdfbdbf
 - ⚡ Fun fact: ...sd96456454355trrgtrкерdfgeregrreewfenhgghfhhgfetrtehtfhgfhfdbbfddfb
